@@ -1,4 +1,4 @@
-# Hello, I'm @neeharika-kubra 👋
+# Hello, I'm Neeharika Kasarla 👋
 
 # 📆 Times / hours I like to work
 - 🕘 9:00AM - 5PM Mountain Time (PHX)
